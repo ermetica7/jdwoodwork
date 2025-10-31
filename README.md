@@ -1,0 +1,1 @@
+© 2025 ALL RIGHTS RESERVED | ERMETICA7 ermetica7.com
